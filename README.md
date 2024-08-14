@@ -1,1 +1,2 @@
 # GitHub-Clone-Push
+I am looking forward to learning how to code because it looks cool, making new freinds because its better when you have more people to talk to, and learning how to use codeing for my business.
